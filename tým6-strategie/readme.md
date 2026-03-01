@@ -1,0 +1,1 @@
+#Tým6-strategie
